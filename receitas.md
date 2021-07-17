@@ -1,4 +1,0 @@
-
-	#Strogonoff de Franfo
-
-
